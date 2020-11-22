@@ -1,0 +1,1 @@
+Mix all the ingridents and fry it in the oil with a pan

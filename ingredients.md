@@ -1,0 +1,1 @@
+3eggs ,fresh vegetables and Oil
